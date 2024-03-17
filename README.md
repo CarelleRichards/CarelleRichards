@@ -2,7 +2,7 @@
 
 🖥️ Recently, I completed a Bachelor of Information Technology with a 3.9/4 GPA.
 
-📚 Previously, I completed a Bachelor of Business.
+📚 Previously, I completed a Bachelor of Business (Marketing).
 
 📷 For the past decade, I've worked in marketing, graphic design, photography, video production and motion graphics.
 
