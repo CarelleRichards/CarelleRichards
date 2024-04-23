@@ -1,4 +1,4 @@
-👋 Hello, I'm Carelle, and I dream of being an engineer in the technology space.
+👋 Hello, I'm Carelle, and I dream of being a software engineer.
 
 🖥️ Recently, I completed a Bachelor of Information Technology with a 3.9/4 GPA.
 
